@@ -1,0 +1,1 @@
+# Krzys to superowa stronka
